@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @jbongco08
-- 👀 I’m interested of foods and musics
+- 👀 I’m interested in foods and musics
 - 🌱 I’m currently learning new programming language
 - 💞️ I’m looking to collaborate on secret
 - 📫 How to reach me email me :P
